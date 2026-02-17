@@ -76,7 +76,7 @@ Seeking an opportunity as a **Data Analyst / BI Analyst** where I can:
 ## 📫 Contact Me
 
 - 🌍 GitHub: https://github.com/Marwamsaid  
-- 💼 LinkedIn: linkedin.com/in/marwa-mohamed-507a81251/()  
+- 💼 LinkedIn:  https://www.linkedin.com/in/marwa-mohamed-507a81251/ 
 - 📧 Email: (marwamsaid6@gmail.com)
 
 ---
